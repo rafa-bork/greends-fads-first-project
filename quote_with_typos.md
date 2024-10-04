@@ -2,8 +2,8 @@
 what they believe to be their spare time, by collecting stamps, coins,
 medals, vases, postcards, matchboxes, books, clocks, sport shirts,
 autographs, stones, clay figurines, empty beverage cans, little angels,
-cacti, opera programmes, lighters, pens, owls, music boxes, bottles, bonsai
-trees, paintings, mugs, pipes, glass obelisks, ceramic ducks, old toys,
+cacti, opera programmes, lighters, pens, owls, music boxes, botles, bonsai
+trees, paintings, mugs, pipes, glass obelisks, ceramic duks, old toys,
 carnival masks, and they probably do so out of something that we might
 call metaphysical angst, perhaps because they cannot bear the idea of
 chaos being the one ruler of the universe, which is why, using their
@@ -15,4 +15,3 @@ or when the collector grows weary, everything goes back to its beginnings,
 everything returns to chaos.”
 
 *― José Saramago, All the Names* 
-#eeeeee
